@@ -15,6 +15,8 @@
 
  <p align="center"> <img width="222" height="38" alt="Image" src="https://github.com/user-attachments/assets/743bb3ba-19ec-478c-b981-f2d48422b44d" />
 
- <p align="center"> note: please do NOT, under ANY circumstances, copy my skins. i will block and report you
+ <p align="center"> note 1: please do NOT, under ANY circumstances, copy my skins. i will block and report you
  <p align="center"> no matter if it's a skin made by me or gifted by a friend, i do NOT take being copied kindly
  <p align="center"> ALWAYS ask for inspo, and if i somehow say no (i usually say yes lmao) then accept the answer and don't try to push your luck
+
+  <p align="center"> note 2: i am mentally disabled and hypersensitive, please use tonetags around me if your sense of humor is more on the sarcastic side unless we're close and i can easily tell the tone of the message. i genuinely have trouble understanding if something is said as a joke or if it's an actual statement but will gradually start learning how you function and how you express yourself if we continuously spend time together
