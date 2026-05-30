@@ -4,8 +4,6 @@
 <p align="center"> jay/skye/everest . adult (20 y.o)
 <p align="center"> this is my evil alt account hi
 <p align="center"> basic dni, more in straw (i need to remake it tho)
-<p align="center"> i am THE heli-cop (skye x chase), roarflight (skye x rex) and crashlanding (skye x marshall) CEO. if you have a chase, rex or marshall skin ... pls int 👀
-<p align="center"> also i have massive beef with the dino rescue uniforms lmfao don't comment on why my rex skin has no hat i can't make it for some reason trust i tried 4 times, if you have better ideas on how to do it help me
 <p align="center"> sign ata pls
 <p align="center"> before you sign it: someone tried to be 'tuff' and shit on me for being a skye fictkin at my big age. don't waste your time writing negative/nonsensical messages, they will get deleted <3
 
