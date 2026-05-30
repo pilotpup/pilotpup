@@ -30,3 +30,5 @@
  <p align="center"> ALWAYS ask for inspo, and if i somehow say no (i usually say yes lmao) then accept the answer and don't try to push your luck
 
   <p align="center"> note 2: i am mentally disabled and hypersensitive, please use tonetags around me if your sense of humor is more on the sarcastic side unless we're close and i can easily tell the tone of the message. i genuinely have trouble understanding if something is said as a joke or if it's an actual statement but will gradually start learning how you function and how you express yourself if we continuously spend time together
+
+<p align="center"> <img width="198" height="112" alt="Image" src="https://github.com/user-attachments/assets/c8fbec3b-37eb-4e67-a39b-9c58355ddf6e" />
