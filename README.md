@@ -16,7 +16,7 @@
 
  <p align="center"> <img width="222" height="38" alt="Image" src="https://github.com/user-attachments/assets/743bb3ba-19ec-478c-b981-f2d48422b44d" />
 
-<p align="center"> i am THE heli-cop (skye x chase), roarflight (skye x rex) and crashlanding (skye x marshall) CEO. if you have a chase, rex or marshall skin ... pls int 👀
+<p align="center"> i am THE ecosky (skye x rocky), heli-cop (skye x chase), crashlanding (skye x marshall) and roarflight (skye x rex) CEO. if you have a rocky, chase, marshall or rex skin ... pls int 👀
 <p align="center"> also i have massive beef with the dino rescue uniforms lmfao don't comment on why my rex skin has no hat i can't make it for some reason trust i tried 4 times, if you have better ideas on how to do it help me
 
  <p align="center"> <img width="216" height="50" alt="Image" src="https://github.com/user-attachments/assets/c6fcb33a-b775-4c3e-aaa7-5d1ba43d4337" />
