@@ -4,6 +4,7 @@
 <p align="center"> jay/skye/everest . adult (20 y.o)
 <p align="center"> this is my evil alt account hi
 <p align="center"> basic dni, more in straw (i need to remake it tho)
+<p align="center"> darkshippers/proshippers stay the fuck away from me
 <p align="center"> sign ata pls
 <p align="center"> before you sign it: someone tried to be 'tuff' and shit on me for being a skye fictkin at my big age. don't waste your time writing negative/nonsensical messages, they will get deleted <3
 
